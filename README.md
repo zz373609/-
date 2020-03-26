@@ -81,3 +81,8 @@
 
 ![群](https://github.com/zz373609/helpeachother/blob/master/81585231946_.pic.jpg?raw=true)
 
+## 如果玩抖音的同学也可以加我的抖音
+
+![抖音](https://github.com/zz373609/helpeachother/blob/master/101585232199_.pic.jpg?raw=true)
+
+
