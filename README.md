@@ -9,21 +9,21 @@
 直接上干货，这几天大家肯定看到口罩满天飞，各种类型，各种报价，其实前几天我也参加了口罩贩卖，倒卖的二道贩子行列，最后想想还是算了，虽然发的是美国国难财，但是也是中国的华人同胞。先给大家普及一下几种口罩:
 
 ## 普通民用
-![普通口罩](https://github.com/zz373609/helpeachother/blob/master/11585228239_.pic.jpg?raw=true)
+![普通口罩](/image/11585228239_.pic.jpg)
 
 国内报价:[1,2]人名币 （单纯的口罩价格）
 
 这种口罩大家就别用了，没什么屌用说实话，也不用买了，戴和不戴区别不大
 
 ## 医用普通
-![医用普通](https://github.com/zz373609/helpeachother/blob/master/31585228422_.pic.jpg?raw=true)
+![医用普通](/image/31585228422_.pic.jpg)
 
 国内报价:[2,3]人名币 （单纯的口罩价格）
 
 之前有很多人要买口罩，这个是我推荐的。但是大家都觉得是医用普通没买，想要买什么医用外科，n95 3m，我实话和大家说吧，现在在中国，一般医院医生都是用这种普通医用，除非是一线的医院才有医用外科和n95 3m，你认为你们能买到医用外科和n95 3m吗，送你两个字，做梦。
 
 ## 医用外科
-![医用外科](https://github.com/zz373609/helpeachother/blob/master/21585228371_.pic.jpg?raw=true)
+![医用外科](/image/21585228371_.pic.jpg)
 
 国内报价L:(3,5]人名币
 
@@ -31,14 +31,13 @@
 
 ## n95
 
-![n95罩杯](https://github.com/zz373609/helpeachother/blob/master/41585229718_.pic.jpg?raw=true)
+![n95罩杯](/image/41585229718_.pic.jpg)
 
 国内估价: (10,15]人名币
 
 这种n95是大家想买的，但是在市场上面基本我没找到货，之前有说在广州有货，17+，是真是假不得而知.
 
-![n95折叠](https://github.com/zz373609/helpeachother/blob/master/51585229734_.pic.jpg?raw=true)
-
+![n95折叠](/image/51585229734_.pic.jpg
 国内估价: (10,15]人名币
 
 这种n95是能找到的，但是很多同学可能觉得不像美国的那种不买，我看国内大多数都是这种，找到的也是这种，如果要买n95可以考虑一下这种.
@@ -47,9 +46,9 @@
 
 现在给大家看一下额温枪.
 
-![抢](https://github.com/zz373609/helpeachother/blob/master/61585230166_.pic.jpg?raw=true)
+![抢](/image/61585230166_.pic.jpg)
 
-![货](https://github.com/zz373609/helpeachother/blob/master/71585230171_.pic.jpg?raw=true)
+![货](/image/71585230171_.pic.jpg)
 
 国内报价: 240+人名币
 
@@ -79,10 +78,10 @@
 
 ## 我拉一个群，需要帮助或者想问问题的可以进来
 
-![群](https://github.com/zz373609/helpeachother/blob/master/81585231946_.pic.jpg?raw=true)
+![群](/image/81585231946_.pic.jpg)
 
 ## 如果玩抖音的同学也可以加我的抖音
 
-![抖音](https://github.com/zz373609/helpeachother/blob/master/101585232199_.pic.jpg?raw=true)
+![抖音](/image/101585232199_.pic.jpg)
 
 
